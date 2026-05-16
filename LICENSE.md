@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket updated bot: decentralized-trading & machine-learning-models, the #1 bot. Includes decentralized-trading and
 
 
 
